@@ -5,4 +5,4 @@ to enable hack, copy the code (control c), then go to khan academy and open the 
 
 then, paste the code (control v) and hit enter
 
-(I also have duolingo, prodigy, blooket, and gimkit hacks)
+(I also have duolingo, prodigy, blacket, blooket, and gimkit hacks)

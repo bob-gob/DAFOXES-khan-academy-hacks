@@ -5,4 +5,6 @@ to enable hack, copy the code (control c), then go to khan academy and open the 
 
 then, paste the code (control v) and hit enter
 
-(I also have duolingo, prodigy, blacket, blooket, and gimkit hacks)
+(go here to see my othr hacks:)
+
+https://github.com/bob-gob?tab=repositories
